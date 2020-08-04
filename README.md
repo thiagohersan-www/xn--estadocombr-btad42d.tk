@@ -1,4 +1,4 @@
-[https://estadão·com·br.tk/noticias/cogumelos-salvam-a-humanidade/](https://estadão·com·br.tk/noticias/cogumelos-salvam-a-humanidade/)
+[https://estadão·com·br.tk/noticias/cogumelos-salvam-a-humanidade](https://estadão·com·br.tk/noticias/cogumelos-salvam-a-humanidade)
 
 [https://estadão·com·br.tk/politica/cpi-dos-fungos-confirma](https://estadão·com·br.tk/politica/cpi-dos-fungos-confirma)
 
